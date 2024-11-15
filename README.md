@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Parvizi007
 - 👀 I’m interested in Art, Medien, history and sport
-- 🌱 I’m currently learning KI und AI
+- 🌱 I’m currently learning KI und Davinchi Cat programm
 - 💞️ I’m looking to collaborate on Film intersted
 - 📫 How to reach me, per Mail our Handy
 - 😄 Pronouns: ...
